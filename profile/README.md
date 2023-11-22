@@ -9,6 +9,5 @@ Please contact us by any of the following methods
 
 - Tizonius ([@Tizonius](https://twitter.com/tizoniuss))
 - Minagishi ([@Minagishl](https://twitter.com/minagishl))
-- EMail: [info@tizonius.com](mailto:info@tizonius.com)
 
 Please feel free to contact us.
